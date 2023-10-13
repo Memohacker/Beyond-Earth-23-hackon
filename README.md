@@ -4,4 +4,3 @@ Cube Satelite :We can determine the percentage of green land in a specific area 
 
 won the second place on ainshams university 🥰
 
-![Uploading WhatsApp Image 2023-10-13 at 14.18.56_1c4d833d.jpg…]()
